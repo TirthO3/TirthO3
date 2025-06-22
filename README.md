@@ -4,7 +4,7 @@
 ---
 
 ### 🔗 My Website
-Visit my full portfolio website at 👉 [https://TirthO3.github.io](https://TirthO3.github.io)
+Visit my full portfolio website at 👉 [https://Tirth.github.io](https://TirthO3.github.io)
 
 ---
 
